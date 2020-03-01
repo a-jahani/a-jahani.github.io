@@ -1,0 +1,1 @@
+<html><head><meta http-equiv="refresh" content="0;http://www.awardspace.com/web-hosting-notice/404" /></head><body></body></html>
